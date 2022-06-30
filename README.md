@@ -9,3 +9,5 @@ KALAU DAPAT CP JANAGN NGAMUK2 INI SC FREE KONTOL
 # python Bang-YR.py
 
 
+#janagn d jual
+
